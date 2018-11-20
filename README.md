@@ -40,3 +40,5 @@ http://www.spbivf.com/ru/donor/database/?donorfilter%5BdonorCategory%5D=sperm&do
 https://www.betterhealth.vic.gov.au/health/conditionsandtreatments/marfan-syndrome
 
 https://www.ncbi.nlm.nih.gov/pubmed/?term=marfan+syndrome
+https://www.ncbi.nlm.nih.gov/pubmed/?term=marfan+syndrome+women
+https://www.ncbi.nlm.nih.gov/pubmed/?term=marfan+syndrome+pregnancy
