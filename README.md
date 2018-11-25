@@ -49,3 +49,5 @@ http://www.krasotaimedicina.ru/treatment/aortic-defect/valve-prosthesis
 https://cyberleninka.ru/article/n/istoriya-hirurgii-aorty-v-rossii
 https://cyberleninka.ru/article/n/istoriya-rekonstruktivnoy-hirurgii-aorty-i-aortalnogo-klapana
 https://cyberleninka.ru/article/n/evolyutsiya-hirurgicheskogo-dostupa-k-bryushnoy-chasti-aorty-i-podvzdoshnym-arteriyam-pri-vypolnenii-rekonstruktivnyh-operatsiy читать источники в статьях
+
+https://cyberleninka.ru/article/n/evolyutsiya-hirurgicheskogo-dostupa-k-bryushnoy-chasti-aorty-i-podvzdoshnym-arteriyam-pri-vypolnenii-rekonstruktivnyh-operatsiy
