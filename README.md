@@ -44,3 +44,4 @@ https://www.ncbi.nlm.nih.gov/pubmed/?term=marfan+syndrome+women
 https://www.ncbi.nlm.nih.gov/pubmed/?term=marfan+syndrome+pregnancy
 
 мукалтин, бетаин ежедневно https://pikabu.ru/story/odin_iz_trekh_yeto_statistika_ili_para_slov_ob_anevrizme_6169658
+http://www.krasotaimedicina.ru/treatment/aortic-defect/valve-prosthesis
