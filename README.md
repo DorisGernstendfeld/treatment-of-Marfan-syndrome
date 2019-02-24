@@ -52,3 +52,5 @@ https://cyberleninka.ru/article/n/istoriya-rekonstruktivnoy-hirurgii-aorty-i-aor
 https://cyberleninka.ru/article/n/evolyutsiya-hirurgicheskogo-dostupa-k-bryushnoy-chasti-aorty-i-podvzdoshnym-arteriyam-pri-vypolnenii-rekonstruktivnyh-operatsiy читать источники в статьях
 
 https://cyberleninka.ru/article/n/evolyutsiya-hirurgicheskogo-dostupa-k-bryushnoy-chasti-aorty-i-podvzdoshnym-arteriyam-pri-vypolnenii-rekonstruktivnyh-operatsiy
+
+https://www.invitro.ru/analizes/for-doctors/mahachkala/1589/
